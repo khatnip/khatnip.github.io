@@ -1,1 +1,1 @@
-# khatnip.github.io
+# khatnip.net
